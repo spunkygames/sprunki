@@ -1,6 +1,6 @@
 # Sprunki
 
-Sprunki is a fun and engaging online experience. Explore the world of Sprunki and discover exciting challenges and creative possibilities. Play [Sprunki](https://sprunki-incredibox.hashnode.space/)
+Sprunki is a fun and engaging online experience. Explore the world of Sprunki and discover exciting challenges and creative possibilities. Play [Sprunki hashnode](https://sprunki-incredibox.hashnode.space/)
 
 
 ---
@@ -17,7 +17,7 @@ Sprunki is a fun and engaging online experience. Explore the world of Sprunki an
 
 ## What is Sprunki? <a name="what-is-sprunki"></a>
 
-Sprunki is a dynamic online experience offering engaging gameplay and creative opportunities.  For related experiences, check out [Spunky Game](https://spunky-game.hashnode.space/) and [Esprunki](https://esprunki.hashnode.space/).
+Sprunki is a dynamic online experience offering engaging gameplay and creative opportunities.  For related experiences, check out [Spunky Game hashnode](https://spunky-game.hashnode.space/) and [Esprunki hashnod](https://esprunki.hashnode.space/).
 
 
 ---
